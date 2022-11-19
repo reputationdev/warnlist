@@ -24,3 +24,8 @@ List of skids I’ve worked with or for
 - Delusional af
 - "why you left krystal"
 - "wt if i give u a plugin which has some hypixel skyblock itemms with working ability"
+
+## Maaxxxii
+- Claims my portfolio looks "Like a griefer"?
+- Tries to make me do work by myself that he has a whole TEAM for lmao
+- ghosted me for like 2 weeks

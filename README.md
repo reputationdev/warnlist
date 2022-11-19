@@ -13,3 +13,9 @@ List of skids I’ve worked with or for
 
 ## Alfie
 - Can't write a single line of code :skull:
+
+## Kylad
+- Australian monke brain
+- "i should be manager"
+- "i shouldn’t need to apply"
+- "im experienced already"

@@ -19,3 +19,8 @@ List of skids I’ve worked with or for
 - "i should be manager"
 - "i shouldn’t need to apply"
 - "im experienced already"
+
+## Ash
+- Delusional af
+- "why you left krystal"
+- "wt if i give u a plugin which has some hypixel skyblock itemms with working ability"

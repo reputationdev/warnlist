@@ -44,3 +44,9 @@ List of skids I’ve worked with or for
 - "For you to apologize to me, son of a bitch"
 - "yep you dont need for me we demoted you because you didn't behave normally."
 - "you don't have to go against nature if you're unlucky with girls."
+
+## Mirage
+- Basically 7 years old
+- skids offline cb launcher 
+- wants free gfx
+- "dude just freaking unban me" 

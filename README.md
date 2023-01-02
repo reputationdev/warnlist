@@ -50,3 +50,6 @@ List of skids I’ve worked with or for
 - skids offline cb launcher 
 - wants free gfx
 - "dude just freaking unban me" 
+
+## ThePython
+- Sold my code without permission.
